@@ -1,1 +1,1 @@
-![Uploading jasmin.JPG…]()
+![Uploading jasmin.jpg…]()
